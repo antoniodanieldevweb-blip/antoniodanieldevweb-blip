@@ -67,8 +67,8 @@ Construindo projetos reais, aprendendo todos os dias e evoluindo para conquistar
 
 ## 🌐 Redes
 
-- LinkedIn: *(adicione seu link)*
-- Instagram: *(adicione seu link)*
+- LinkedIn: *(https://www.linkedin.com/in/antonio-daniel-3b1615269)*
+- Instagram: *(https://www.instagram.com/adaniel.dev?igsh=MTB6Z2p1YWwwdXF0Nw==)*
 
 ---
 
